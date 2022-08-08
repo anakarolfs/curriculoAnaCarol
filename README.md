@@ -1,3 +1,3 @@
-# curriculo Ana Carolina Fernandes da Silva
+# Curriculo
 
 https://anakarolfs.github.io/curriculoAnaCarol/
