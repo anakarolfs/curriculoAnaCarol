@@ -1,3 +1,3 @@
-# Curriculo /* Em Manutenção */
+# Curriculo Ana Carolina Fernandes
 
 https://anakarolfs.github.io/curriculoAnaCarol/
